@@ -10,4 +10,4 @@ For any inquiries, drop us a mail at info@motionlayer.company, or use the [conta
 
 ---
 
-*Formerly Tinymovr. Same team, same products, new name.*
+*Formerly Tinymovr*
