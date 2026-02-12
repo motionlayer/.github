@@ -6,7 +6,7 @@ Our main products are the [Axion Actuator](https://motionlayer.company/products/
 
 Feel free to browse around, and don't forget to visit our [website and store](https://motionlayer.company)!
 
-For any inquiries, drop us a mail at info@motionlayer.company, or use the [contact form on our website](https://motionlayer.company/pages/about-us).
+For any inquiries, drop us a mail at info@motionlayer.company.
 
 ---
 
